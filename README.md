@@ -1,1 +1,0 @@
-# Projetos LM/IMedData
